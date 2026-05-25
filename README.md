@@ -5,4 +5,4 @@ Pra falar a verdade deram 2 semanas pra fazer esse trabalho e aqui estou eu em u
 Aliás se tu leu isso aqui manda mensagem lá no meu insta: "yurizcs._"
 ou no meu Tiktok: "@yuritc191"
 
-Começo a suspeitar de que eles vão grudar nosso cartaz na parede aumentando as chances de alguem abrir isso aqui... Ou é coisa da minha cabeça.
+- 1 dia depois - Começo a suspeitar de que eles vão grudar nosso cartaz na parede aumentando as chances de alguem abrir isso aqui... Ou é coisa da minha cabeça.
