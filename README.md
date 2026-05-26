@@ -8,4 +8,4 @@ ou no meu Tiktok: "@yuritc191"
 - 1 dia depois - Começo a suspeitar de que eles vão grudar nosso cartaz na parede aumentando as chances de alguem abrir isso aqui... Ou é coisa da minha cabeça.
 - Trabalho ta pronto FINALMENTE. 😭😭😭😭
 
-Acho que esse é o fim do meu relátorio aqui do extraoficial então não haverá mais alterações no arquivo. :P
+Acho que esse é o fim do meu relátorio extraoficial do trabalho então não haverá mais alterações no arquivo. :P
